@@ -1,4 +1,4 @@
-# Welcome to Chekushka Corp
+# Welcome to 313team
 <img width="1139" height="759" alt="0SfZqrts" src="https://github.com/user-attachments/assets/dd2f4817-ed16-417b-abf8-7cbc60b79cdd" />
 we (me (Ihatebloat) and my alt account) do nothing and that's the thing
 
